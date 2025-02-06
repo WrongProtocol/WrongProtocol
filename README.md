@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @WrongProtocol
 - 👀 I’ve been developing since 1999
 - 🌱 I’m currently learning how to exit from owning an audio/software company.
-- 💞️ I’m not currently looking to collaborate, just taking it easy.
+- 💞️ I’m not currently looking to collaborate in any serious capacity, just enjoyment.
 - 📫 Contact me via e-mail,  I am Carmine at Cheer Sounds dot com
 - ⚡ Fun fact: I have pet chickens and turtles.
 
